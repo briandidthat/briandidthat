@@ -9,4 +9,3 @@
 * 📚 Learning
 * 🏋🏽‍♂️ Working out
 * 🏊🏽‍♂️ Swimming
-* 
