@@ -9,3 +9,4 @@
 * 📚 Learning
 * 🏋🏽‍♂️ Working out
 * 🏊🏽‍♂️ Swimming
+* ♠️  Poker
