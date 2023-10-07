@@ -7,6 +7,7 @@
 ---
 🌟 Hobbies and Interests
 * 📚 Learning
+* 👨🏽‍💻 Building
 * 🏋🏽‍♂️ Working out
 * 🏊🏽‍♂️ Swimming
 * ♠️  Poker
